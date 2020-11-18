@@ -1,3 +1,3 @@
-# Ayojon Coming Soon
+# Ayoojon Coming Soon
 
-You can visit [Ayojon](https://www.ayojon.co/).
+You can visit [Ayoojon](https://www.ayoojon.com).
